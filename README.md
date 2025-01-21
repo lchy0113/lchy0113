@@ -26,6 +26,6 @@ When I'm not coding, I enjoy spending time with my family, exploring new technol
 
 📫 **How to Reach Me**
 - Email: [lchy0113@gmail.com](mailto:lchy0113@gmail.com)
-- LinkedIn: [Lee.C LinkedIn Profile](https://linkedin.com/in/your-profile](https://www.linkedin.com/in/changyong-lee-b4b368154)
+- LinkedIn: [changyong Lee LinkedIn Profile](https://www.linkedin.com/in/changyong-lee-b4b368154)
 
 🚀 Let's create something amazing together!
